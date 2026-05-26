@@ -1,5 +1,5 @@
 # 💫 About Me:
-Computer Science and Mathematics double major at Penn State interested in technology, entrepreneurship, and innovation.<br>🔭 I’m currently working on SecondHandMarketMaker<br>👯 I’m looking to collaborate on any emerging projects<br>
+Computer Science and Mathematics double major at Penn State interested in technology, entrepreneurship, and innovation.<br>👯 I’m looking to collaborate on any emerging projects<br>
 
 
 ## 🌐 Socials:
